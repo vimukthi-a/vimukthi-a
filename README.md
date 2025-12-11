@@ -4,6 +4,8 @@ I'm a student who loves coding and building things. I enjoy web development and 
 
 When I'm not coding, you'll find me at the gym, mixing and matching my spotify playlist 🎵 or gaming while sipping on my karak ☕ 
 
+*P.S I also love Formula 1 🏎️*
+
 Always exploring, always learning.
 
 ---
