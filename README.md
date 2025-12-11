@@ -1,8 +1,8 @@
-# Hey there! 👋
+# Greetings fellow traveler 🧭
 
 I'm a student who loves coding and building things. I enjoy web development and software engineering, and I'm currently diving deep into machine learning — working on prediction apps and other projects to learn as I go.
 
-When I'm not coding, you'll find me at the gym or mix and matching my spotify playlist 🎵
+When I'm not coding, you'll find me at the gym, mixing and matching my spotify playlist 🎵 or gaming while sipping on my karak ☕ 
 
 Always exploring, always learning.
 
