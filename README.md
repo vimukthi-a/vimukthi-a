@@ -20,6 +20,7 @@ Always exploring, always learning.
 
 ## 📫 Let's connect:
 [LinkedIn](https://www.linkedin.com/in/vimukthi-ashen/)
+[Email](nm2309242@qu.edu.qa)
   
 ---
 
